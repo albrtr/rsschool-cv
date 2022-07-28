@@ -15,10 +15,10 @@ Willingness to learn and grow as a professional.*
 + CSS
 + HTML
 ## Code
-**coming soon**
+**Coming Soon...**
 ## Experience
 Basic level
 ## Education
-+ BSUIR, Faculty of Infocommunications, 
+BSUIR, Faculty of Infocommunications 
 ## English
 A2, completed the courses "Yes" academy
